@@ -1,1 +1,1 @@
-BB&B - Nyama Choma Grill
+BB&B - Nyama Choma Grill.
